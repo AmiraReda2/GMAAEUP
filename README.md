@@ -1,9 +1,4 @@
 
-On sale
-Gmaakeup - Makeup Artist HTML Template - Health & Beauty Retail
-Live Preview
-\\
-
 Gmaakeup – Makeup Artist HTML Template suitable for any type clean, simple, modern and unique design. This template was designed for makeup artist agencies, beauty saloon, hairdressers, lashes studio, model agency and manicure etc.
 
 We have built this HTML Template base on in-depth research on services, experience, works and expertise to your need and to the expectation for your clients.
